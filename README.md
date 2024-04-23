@@ -1,2 +1,2 @@
 ## Hi!
-### Pick just one thing, yes or yes?
+### Pick just one thing, 🩷yes or 🤍yes?
